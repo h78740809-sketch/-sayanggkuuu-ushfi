@@ -1,0 +1,2 @@
+# -sayanggkuuu-ushfi
+untukk sayanggkuu
